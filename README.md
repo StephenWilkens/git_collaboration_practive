@@ -1,4 +1,4 @@
-## Stephen + Andy PractiVe
+## Stephen + Andy Practice
 
 read some stuff
 
